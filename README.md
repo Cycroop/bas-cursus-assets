@@ -1,0 +1,1 @@
+# bas-cursus-assets
